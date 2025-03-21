@@ -1,4 +1,4 @@
-## Hi there 👋
+## 20 years old students who loves tinkering with stuffs
 
 <!--
 **naoyukikun/naoyukikun** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
